@@ -1,0 +1,1 @@
+starting with sheel basics
